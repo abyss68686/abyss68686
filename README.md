@@ -1,5 +1,6 @@
 - 👋 Hi, Ich bin @abyss68686
 - 👀 Ich bin intessiert an Netzwerk Sicherheit und Penetrationstest
+- Comptia A+ machen dürfen und hoffentlich bald eine IT Weiterbildung beginnen durfen wenn alles klappt
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Salzsäure am Morgen vertreibt Organe und Sorgen
